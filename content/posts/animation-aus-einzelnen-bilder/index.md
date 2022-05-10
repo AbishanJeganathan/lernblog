@@ -8,4 +8,10 @@ Im Fach hatte ich die Möglichkeit ein selbstständiges Projekt zu gestalten und
 
 ![William Kentridge](713px-william_kentridge_dsc_2685.jpg)
 
-![]()
+Durch gründliches auseinandersetzten einer Idee bin ich auf den genialen Gedanken gekommen, dass ich ein Junge zeichne, welcher gerade einen Basketball wirft. 
+
+
+
+Mein erster Entwurf:
+
+![](548454.png)
