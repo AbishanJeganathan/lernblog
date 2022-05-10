@@ -15,3 +15,7 @@ Durch gründliches auseinandersetzten einer Idee bin ich auf den genialen Gedank
 Mein erster Entwurf:
 
 ![](548454.png)
+
+Nach langem ausprobieren der Zeichnung bin ich schlussendlich auf eine Skizze gekommen, die mir sehr gefallen hatte. Nachdem holte ich einen Stativ und ein Atelierstaffelei. Ich war bereit für mein Projekt! Nach mehreren Wochen und Versuchen bekam ich das Resultat, welches ich wollte.
+
+![]()
