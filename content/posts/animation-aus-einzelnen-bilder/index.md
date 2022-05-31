@@ -1,5 +1,5 @@
 +++
-title = "Animation aus einzelnen Bilder"
+title = "Animation aus einzelnen Bildern"
 date = "2022-05-10"
 draft = false
 pinned = false
